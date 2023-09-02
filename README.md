@@ -1,1 +1,1 @@
-https://ahmedkamel19.github.io/starek/shady/index.com
+https://ahmedkamel19.github.io/starek/shady/index.html
